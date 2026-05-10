@@ -2,6 +2,30 @@
 > Click on any link below to start downloading directly.<br><br/>
 
 
+### 📅 2026-05-10 12:31 IR
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_1.mp4) `16.5MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_2.mp4) `17.2MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_3.mp4) `18.8MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_4.mp4) `16.1MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_5.mp4) `16.7MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_6.mp4) `15.0MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_7.mp4) `16.1MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_8.mp4) `16.9MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_9.mp4) `19.5MB`
+
+- 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_10.mp4) `7.8MB`
+
+---
+
+
 ### 📅 2026-05-10 12:24 IR
 - 🎬 [چرا_اینقدر_نابرابری_در_جهان_وجود_داره؟](https://github.com/StrongPosition/sandbox/raw/ffmpeg-split/dl/%DA%86%D8%B1%D8%A7_%D8%A7%DB%8C%D9%86%D9%82%D8%AF%D8%B1_%D9%86%D8%A7%D8%A8%D8%B1%D8%A7%D8%A8%D8%B1%DB%8C_%D8%AF%D8%B1_%D8%AC%D9%87%D8%A7%D9%86_%D9%88%D8%AC%D9%88%D8%AF_%D8%AF%D8%A7%D8%B1%D9%87%D8%9F_part_1.mp4) `16.5MB`
 
